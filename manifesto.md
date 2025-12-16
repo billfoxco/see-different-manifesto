@@ -13,3 +13,5 @@ It appears when awareness becomes primary.
 
 This is not instruction.
 It is recognition.
+
+This is the source. The fuller expression lives elsewhere.
