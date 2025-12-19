@@ -1,4 +1,4 @@
-# The SEE DIFFERENT Manifesto
+# The See Different Manifesto
 
 This is a living manifesto for awareness.
 
